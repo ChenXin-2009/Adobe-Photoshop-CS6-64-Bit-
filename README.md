@@ -2,6 +2,7 @@
 Adobe Photoshop CS6 (64 Bit)破解版  
 ===
 
+文件在标签的Releases里,就是PS.zip
 # Adobe Photoshop CS6 Extended (64 bit) 绿色精简版  
 
 
